@@ -1,4 +1,4 @@
-# 
+# Get the ultimate DaVinci Resolve for macOS filter with elite DaVinci Resolve for macOS Filter | scene-transitions + AI-upscaling. Featuring scene-transitions and AI-upscaling,
 
 
 
